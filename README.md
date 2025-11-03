@@ -1,1 +1,0 @@
-# Fauzan-Aziz-Praktikum
